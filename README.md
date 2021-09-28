@@ -1,12 +1,15 @@
-## Donda
+## Government Scandals 
+### MK ULTRA
+MK Ultra was the name given to the illegal project of brainwashing/mind control which was sanctioned in 1953, ending in 1973, and included the experimentation of people. Initially the desired result was a developed procedure where LSD would be utilized to weaken an individual and force confessions through brainwashing and psychological torture. 
+The illegal portion of the project was the use of US and Canadian citizens as unwitting test subjects. Strategies used to manipulate subjects and to "brainwash" them included the use of psychoactive drugs, such as LSD, which were used in high doses. Other forms of torture included, sensory deprivaton, electroshocks, hypnosis, verbal assault, and sexual assault. 
+Procedures for MK Ultra were held in locations such as prisons, colleges, hospitals, and pharmaceutical companies.
 
-Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda 
+Investigations on the project were put into a deadend as CIA Director, RIchard Helms, ordered all MK Ultra documents to be destroyed in 1973
 
-Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda
+Existing documents and information of MK Ultra was only released to to public in 2001 with files on another experiments on mind controlling dogs being released in 2018
+#### Waco Massacre
 
-### Donda?
-
-Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda Donda
+Under the suspicion of possessing illegal firearms, the ATF ( Bureau of Alcohol, Tobacco, and Firearms ) 
 
 ```markdown
 I wanna go to the moon, don't leave so soon (Don't leave so soon)
