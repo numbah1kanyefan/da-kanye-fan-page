@@ -19,7 +19,9 @@ Procedures for MK Ultra were held in locations such as prisons, colleges, hospit
 Investigations on the project were put into a deadend as CIA Director, RIchard Helms, ordered all MK Ultra documents to be destroyed in 1973
 
 Existing documents and information of MK Ultra was only released to to public in 2001 with files on another experiments on mind controlling dogs being released in 2018
-#### Ruby Ridge
+![c66f0266-826d-4a88-9838-d23588081420](https://user-images.githubusercontent.com/91563723/135203874-9ab776ba-24e5-4124-8acb-058af9e9b259.jpg)
+
+### Ruby Ridge
 
  
 
