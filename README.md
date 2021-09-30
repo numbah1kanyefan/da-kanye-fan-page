@@ -1,4 +1,4 @@
-## Donda
+## Knaye da best
 ### Donda
 DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA
 
@@ -10,8 +10,7 @@ DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DONDA DO
 
 
 
-## Sleeper Agents
-### MK ULTRA
+## MK ULTRA
 MK Ultra was the name given to the illegal project of brainwashing/mind control which was sanctioned in 1953, ending in 1973, and included the experimentation of people. Initially the desired result was a developed procedure where LSD would be utilized to weaken an individual and force confessions through brainwashing and psychological torture. 
 The illegal portion of the project was the use of US and Canadian citizens as unwitting test subjects. Strategies used to manipulate subjects and to "brainwash" them included the use of psychoactive drugs, such as LSD, which were used in high doses. Other forms of torture included, sensory deprivaton, electroshocks, hypnosis, verbal assault, and sexual assault. 
 Procedures for MK Ultra were held in locations such as prisons, colleges, hospitals, and pharmaceutical companies.
@@ -21,7 +20,38 @@ Investigations on the project were put into a deadend as CIA Director, RIchard H
 Existing documents and information of MK Ultra was only released to to public in 2001 with files on another experiments on mind controlling dogs being released in 2018
 ![c66f0266-826d-4a88-9838-d23588081420](https://user-images.githubusercontent.com/91563723/135203874-9ab776ba-24e5-4124-8acb-058af9e9b259.jpg)
 
- ### 
+
+## Foreign Involvement
+
+In efforts to learn more about the human nature, CIA officals hired and worked along side Nazi concentration camp officers as well as Japanese torturers to learn methods.
+
+The Nazi doctors gave information on the gas Sarin, a nerve agents that causes the symtoms:
+Runny nose
+Watery eyes
+Small, pinpoint pupils
+Eye pain
+Blurred vision
+Drooling and excessive sweating
+Cough
+Chest tightness
+Rapid breathing
+Diarrhea
+Nausea, vomiting, and/or abdominal pain
+Increased urination
+Confusion
+Drowsiness
+Weakness
+Headache
+Slow or fast heart rate
+Low or high blood pressure
+
+larger Exposure leading to:
+Loss of consciousness
+Convulsions
+Paralysis
+Respiratory failure possibly leading to death
+
+##
 
 ```markdown
 I wanna go to the moon, don't leave so soon (Don't leave so soon)
