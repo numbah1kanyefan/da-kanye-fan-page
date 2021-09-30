@@ -70,7 +70,7 @@ Slow or fast heart rate
 
 Low or high blood pressure
 
-larger Exposure leading to:
+Larger Exposure leading to:
 
 Loss of consciousness
 
