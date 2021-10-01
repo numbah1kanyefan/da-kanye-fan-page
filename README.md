@@ -73,7 +73,7 @@ Low or high blood pressure
 ```
 Larger Exposure leading to:
 
-'''markdown
+```markdown
 Loss of consciousness
 
 Convulsions
@@ -81,7 +81,7 @@ Convulsions
 Paralysis
 
 Respiratory failure possibly leading to death
-'''
+```
 
 
 ## Victims 
